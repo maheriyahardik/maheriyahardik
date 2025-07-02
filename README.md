@@ -1,5 +1,5 @@
 https://mhshardik.ct.ws/
-hardikphp.ct.ws
+https://hardikphp.ct.ws
 
 
 
