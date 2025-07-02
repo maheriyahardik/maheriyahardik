@@ -1,4 +1,4 @@
-add.phphttps://mhshardik.ct.ws/
+https://mhshardik.ct.ws/
 hardikphp.ct.ws
 
 
